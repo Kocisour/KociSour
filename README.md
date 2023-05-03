@@ -15,7 +15,7 @@
 
 - 📫 You can reach me at: **kocisour@gmail.com**
 
-- 📱 I can speak with no problems 🇪🇸/🇬🇧
+- 📱 I can speak fluently 🇪🇸/🇬🇧
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
